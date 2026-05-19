@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently studying in a programming bootcamp
+Currently studying at Salt Lake City Community College
 
 
 ## 🌐 Socials:
